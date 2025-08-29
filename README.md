@@ -2,6 +2,13 @@
 
 **The Money View Promo Code is UYAENITD. Use this Money View Promo Code `UYAENITD`** to save **50% off** loan processing fees + **get free up to ₹1,000** on approval.
 
+## Money View Promo Code
+
+| **MoneyView Promo Code** | **UYAENITD** |
+|--------------------------|--------------|
+| Using MoneyView Promo Code | Get Free Upto ₹1,000 & 50% Off on Loan Processing Fees|
+| Refer and Earn | Free Commission |
+
 ## Apply Now for Money View Loan using Promo Code — UYAENITD
 - 📱 Android & iOS App
 - ⚡ Instant Personal Loans
