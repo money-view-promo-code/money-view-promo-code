@@ -28,7 +28,7 @@ Money View Promo Code is UYAENITD. Use Money View Promo Code UYAENITD to save 50
 ---
 
 ## FAQ on Money View Promo Code UYAENITD
-###**What is the Money View Promo Code?**  
+### What is the Money View Promo Code?
 The Money View Promo Code is **UYAENITD**. Applying using Money View Promo Code UYAENITD, gives you **50% off processing fee** and ** free upto ₹1,000 back** instantly (for new 2025 applicants).
 
 <!--
